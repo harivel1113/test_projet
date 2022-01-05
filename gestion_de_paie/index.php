@@ -1,6 +1,0 @@
-<?php
-qsdlkfjkqsdfkjqsdlkf
-qsdfqsdjflqsdjkfqs
-fclosefqsdfqsdfbrsqdfsdfsdf
-*
-sdfqsdfqsdf eazz qsdfkjqsdfkjsdf
